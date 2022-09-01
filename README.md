@@ -1,1 +1,0 @@
-# oguzhan-demirci.github.io
